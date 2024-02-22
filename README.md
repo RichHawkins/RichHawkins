@@ -18,7 +18,7 @@ Currently I'm living in Newark, DE with my wonderful partner of 11 years. I like
   - **🎵 Music:** I love most genres of music and play 2 instruments, mandolin and guitar. 🎸
   - **🏈 Football:** Lifelong Eagles fan. Go Birds!! 🦅
   - **🖥️ Computers:** Building PC's has been a hobby of mine since I was a teenager. ⌨️
-  - **🍳 Cooking:** Early on in life I was a linecook for a few years and that established a passion for cooking and trying new cuisines. 🍟
+  - **🍳 Cooking:** Early on in life I was a linecook for a few years and that created a passion for cooking and trying new cuisines. 🍟
   - **🎲 Boardgames:** The more complex the better. Love to sit with friends for a few hours problem solving while competing. 🎲
 
 ## 💥Curtain Call💥

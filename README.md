@@ -11,7 +11,7 @@ Currently I'm living in Newark, DE with my wonderful partner of 11 years. I like
 2024 is shaping up to be a big year. By August I'll have graduated from Code Differently and be on my way to the tech job I've always wanted. In November I get married. In the future I'm looking forward to buying a house and settling down and can't wait to see where this journey takes me.
   
 ## 📖 More About Nothing.
-**📱Preferred Communication:** Text or email, if you call me be prepared to leave a voice mail message.
+**📱Preferred Communication:** I believe in open and honest communication! I believe its a two way street for good communication. Text or email, if you call me be prepared to leave a voice mail message.
 
 **Things I enjoy:**
 

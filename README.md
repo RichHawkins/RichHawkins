@@ -1,4 +1,4 @@
-# 💰 Hello, my name is Rich Hawkins 💰
+# 💰👑 Hello, my name is Rich Hawkins 👑💰
 Welcome to my README. Here you will learn a little more about where I'm from and where I'm going    
 ## 🚫💵 Where I was.
 Born in Delaware. I lived in Smyrna until I was 11 and then moved to New Castle. I moved out of my family home when I was 18 and did short stints in Maryland and New Jersey before settling in Pennsylvania for 10 years. After a long hiatus Delaware called me back.
